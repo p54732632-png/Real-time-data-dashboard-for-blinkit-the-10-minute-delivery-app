@@ -73,7 +73,7 @@ This analysis can help:
 ---
 
 ## 🔗 Connect with Me
-💼 **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/your-profile)
+💼 **LinkedIn:** (www.linkedin.com/in/pankaj-kumar-yadav-278986331)
 
 ---
 
